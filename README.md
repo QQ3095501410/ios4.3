@@ -6,6 +6,13 @@ ios苹果4.3马甲包混淆器
     不限棋牌、不限手游、不需要您修改任何代码、不需要您更换任何ui、不需要任何预付款。
     价格全网最低，技术全网最高, 专业技术团队, 全程脚本自动化混淆，为您解决4.3被拒问题。
     早日上架，早日赚钱。联系QQ:3095501410, 微信:mjb3095501410
+    
+The ios waistcoat bag is specially designed for ios 4.3
+
+Apple ios waistcoat package 4.3, 2.1 overviewed gift package
+No board, no mobile game, no code changes, no UI changes, no advance payments.
+The price is the lowest in the whole network, the technology is the highest in the whole network, the professional technical team, the whole process script automation confusion, solves 4.3 rejection problem for you.
+Hit stores early and make money early. Contact QQ:3095501410, WeChat :mjb3095501410
 
 执行方式
 
